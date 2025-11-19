@@ -1,1 +1,0 @@
-# mcp-for-beginners
